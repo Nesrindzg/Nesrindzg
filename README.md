@@ -10,4 +10,3 @@
 
 ## 🚀 Bağlantılarım
 - 🌍 [LinkedIn](https://linkedin.com/in/Nesrindzg)  
-- 🐦 [Twitter](https://twitter.com/Nesrindzg)  
